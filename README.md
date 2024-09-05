@@ -4,3 +4,4 @@ https://docs.google.com/presentation/d/1zbxrH4C1AwBFmkm7yilEzB5soDPnjmiPxm8uVae1
 Какой-то текст
 
 Наименование
+анаонлсаро
